@@ -146,11 +146,11 @@ http://localhost:5173
 
 **Electronics & Telecommunication Engineering Student**
 
-📧 Email: *(Add your email)*
+📧 Email: mrudulgawande@gmail.com
 
 🌐 GitHub: https://github.com/Mrudul122006
 
-💼 LinkedIn: *(Add your LinkedIn profile)*
+💼 LinkedIn: www.linkedin.com/in/mrudul-gawande-8bb19b341
 
 ---
 
